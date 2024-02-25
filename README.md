@@ -1,2 +1,2 @@
 👋
-[Telegram](@afonya081)
+Telegram @afonya081
